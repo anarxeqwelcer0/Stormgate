@@ -233,4 +233,4 @@ Stormgate is offered as a full free version with all features and updates includ
 Dive into the action and strategy—**Download Stormgate free today and lead your army to victory!**
 
 ---
-**Last updated:** 2026-10-29 18:53:30 UTC
+**Last updated:** 2026-10-29 23:11:38 UTC
